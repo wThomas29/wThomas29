@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @wThomas29
 - 👀 I’m interested in computing and business.
 - 🌱 I’m currently learning arduino.
-- 📫 How to reach me @drabdap on instagram.
+- 📫 How to reach me no
